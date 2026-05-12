@@ -1,1 +1,0 @@
-# proyecto-carls-jr-12-de-mayo-2026
