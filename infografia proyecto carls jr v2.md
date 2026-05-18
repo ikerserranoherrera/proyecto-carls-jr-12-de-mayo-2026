@@ -13,3 +13,7 @@
 ## fase 5
 <img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/604fb9ea-3fa2-402a-8b17-7b0d94be80f4" />
 
+## fase 6
+<img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/0d12fa45-8820-40c6-9c0d-345600c3c524" />
+
+
